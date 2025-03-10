@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Uchia-Itachi100
 - 👀 I’m interested in-Gaming
-- 🌱 I’m currently learning to edit videos
 - 📫 How to reach me Shadocraft106 {YouTube}
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: idk any u tell
